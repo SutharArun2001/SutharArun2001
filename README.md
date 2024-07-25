@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SutharArun2001
 - 👀 I’m interested in coding , learn new technologies ,table tennis and many more things.
--    I'm national gold medalist in american football .
+-    I'm national gold and bronze medalist in American Football Flag .
 - 🌱 I’m currently learning Andriod development,python ,java and web development.
 - 💞️ I’m looking to collaborate on part time job like web designing and full stack development.
 - 📫 How to reach me through arunsuthar21@gmail.com
